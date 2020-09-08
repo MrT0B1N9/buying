@@ -23,3 +23,7 @@ Mr.T0B1N9
 
 mntp2 amajic 
 ga sadar ada yg intip2
+
+berhubung billing warnet nya mau hbs sisa 2 mnt kiu send google drive
+
+https://drive.google.com/file/d/1-rCoh2bCkMHigQ3hmRjW3sbc8QnexDwF/view?usp=sharing
