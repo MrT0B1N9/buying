@@ -18,3 +18,8 @@ Mr.T0B1N9
 
 
 ![1](https://user-images.githubusercontent.com/66794495/92488290-8c960400-f218-11ea-8282-645476a872f6.jpeg)
+
+
+
+mntp2 amajic 
+ga sadar ada yg intip2
